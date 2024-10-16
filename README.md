@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @StefaniaBussu 
+- 📚 I’m interested in learning more 
+- 🌱 I’m currently learning studying web development 👩‍💻
+- 📩 How to reach me: www.linkedin.com/in/stefaniabussu
